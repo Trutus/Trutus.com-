@@ -1,2 +1,2 @@
-# Trutus.com-
+# Kata Kunci-
 https://www.katakunci.id
